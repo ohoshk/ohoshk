@@ -1,6 +1,6 @@
 ### Hi there, I'm ohoshk. 👋
 Some basic information about me and what I do:
-- I go by he/him pronouns
+- I exist
 - I work on various projects revolving around old Roblox
 - According to an AI chatbot, I am a conversation starter
 - I have been in the ORC (Old Roblox Community) for almost five years
