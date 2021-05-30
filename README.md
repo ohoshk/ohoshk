@@ -3,7 +3,7 @@
 ### Hi there, I'm ohoshk. 👋
 Some basic information about me and what I do:
 - I exist
-- I work on various projects revolving around old Roblox
+- I work on various projects revolving around old Roblox, including one with @frickinfire
 - According to an AI chatbot, I am a conversation starter
 - I have been in the ORC (Old Roblox Community) for five years
 - My favorite Roblox clients are 2010 and 2014
